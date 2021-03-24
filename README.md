@@ -1,1 +1,1 @@
-# Some random lectures I gave on Muni
+# Some random lectures I givee a Muni
